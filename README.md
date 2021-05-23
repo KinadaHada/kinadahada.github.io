@@ -1,1 +1,0 @@
-# kinadahada.github.io
